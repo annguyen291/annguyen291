@@ -1,6 +1,6 @@
 - 👋 Hi, I’m An and you can call me An or Luke, it's fine ;)
 - 👀 I’m interested in shooting, gym, driving, camping and traveling.
-- 🌱 I’m currently learning data analyst and English by my own.
+- 🌱 I’m currently learning Data Analyst and English by my own.
 - 📫 You can reach me via email: nguyentinhan291@gmail.com or timnguyen2901@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I'm an introvert and love giving good things to everybody! ;)
